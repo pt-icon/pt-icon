@@ -3,8 +3,8 @@ welcome to PT-ICON! here, you can nominate yourself as ponytowns *any form of me
 # I update every Wednesday, Monday! (UTC+8) 
 
 PS. if your going to request removal for someone problematic, please provide information so we know that it is justified.
-
-| Username | Title / Icon |
+# pony town icons! 
+| ⭐ | Icon ! |
 | :--- | :--- |
 | [4lamort](https://github.com/4lamort) | ponytown's iconic Dracula! |
 | [5orrows](https://github.com/5orrows) | ponytown's iconic ichigo kurosaki! |
