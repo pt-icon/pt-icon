@@ -5,16 +5,16 @@ welcome to PT-ICON! here, you can nominate yourself as ponytowns *any form of me
 PS. if your going to request removal for someone problematic, please provide information so we know that it is justified.
 
 # PONY TOWN ICONS! 
-[4lamort](https://github.com/4lamort) - ponytown's iconic Dracula! 
-[5orrows](https://github.com/5orrows) - ponytown's iconic ichigo kurosaki! 
-[angeIist](https://github.com/angeIist) - ponytown's iconic Reddoons! 
-[Aspenolia](https://github.com/Aspenolia) - ponytown's iconic azure! 
-[bunchoffriends](https://github.com/bunchoffriends) - ponytown's iconic anthony po! 
-[c-utesy](https://github.com/c-utesy) - ponytown's iconic no. 1 femtanyl fan! 
-[Chemicalshot](https://github.com/Chemicalshot) - ponytown's iconic wemmbu! 
-[Dvxter](https://github.com/Dvxter) - ponytown's iconic isabelle from animal crossing! 
-[mandela-net](https://github.com/mandela-net) - ponytown's iconic guest-1337 yumeshipper! 
-[soulsilver](https://github.com/souIsiIver) - ponytown's iconic silver from Pokemon! 
-[soundrod](https://github.com/soundrod) - ponytown's iconic marc marquez! 
-[THE-DREAMENDING](https://github.com/THE-DREAMENDING) - ponytown's iconic Don Quixote! 
+[4lamort](https://github.com/4lamort) - ponytown's iconic Dracula! ㅤㅤㅤㅤㅤ
+[5orrows](https://github.com/5orrows) - ponytown's iconic ichigo kurosaki! ㅤㅤㅤㅤ
+[angeIist](https://github.com/angeIist) - ponytown's iconic Reddoons! ㅤㅤㅤㅤ
+[Aspenolia](https://github.com/Aspenolia) - ponytown's iconic azure! ㅤㅤㅤㅤ
+[bunchoffriends](https://github.com/bunchoffriends) - ponytown's iconic anthony po! ㅤㅤㅤㅤ
+[c-utesy](https://github.com/c-utesy) - ponytown's iconic no. 1 femtanyl fan! ㅤㅤㅤㅤ
+[Chemicalshot](https://github.com/Chemicalshot) - ponytown's iconic wemmbu! ㅤㅤㅤㅤ
+[Dvxter](https://github.com/Dvxter) - ponytown's iconic isabelle from animal crossing! ㅤㅤㅤㅤ
+[mandela-net](https://github.com/mandela-net) - ponytown's iconic guest-1337 yumeshipper! ㅤㅤㅤ
+[soulsilver]ㅤㅤㅤ(https://github.com/souIsiIver) - ponytown's iconic silver from Pokemon! ㅤㅤㅤ
+[soundrod](https://github.com/soundrod) - ponytown's iconic marc marquez! ㅤㅤㅤㅤㅤㅤㅤㅤ
+[THE-DREAMENDING](https://github.com/THE-DREAMENDING) - ponytown's iconic Don Quixote! ㅤㅤㅤㅤㅤㅤㅤㅤ
 [VArtfultrust](https://github.com/VArtfultrust) - ponytown's iconic eggchan! 
