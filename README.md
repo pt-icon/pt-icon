@@ -15,7 +15,7 @@ PS. if your going to request removal for someone problematic, please provide inf
 | [Chemicalshot](https://github.com/Chemicalshot) | ponytown's iconic wemmbu! |
 | [Dvxter](https://github.com/Dvxter) | ponytown's iconic isabelle from animal crossing! |
 | [mandela-net](https://github.com/mandela-net) | ponytown's iconic guest-1337 yumeshipper! |
-| [soulsilver](https://github.com/soulsilver) | ponytown's iconic silver from Pokemon! |
+| [souIsiIver](https://github.com/souIsiIver) | ponytown's iconic silver from Pokemon! |
 | [soundrod](https://github.com/soundrod) | ponytown's iconic marc marquez! |
 | [THE-DREAMENDING](https://github.com/THE-DREAMENDING) | ponytown's iconic Don Quixote! |
 | [VArtfultrust](https://github.com/VArtfultrust) | ponytown's iconic eggchan! |
