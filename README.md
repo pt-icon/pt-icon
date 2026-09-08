@@ -10,6 +10,7 @@ PS. if your going to request removal for someone problematic, please provide inf
 | [2quet](https://github.com/2quet) | ponytown's iconic Bluudud! 
 | [4lamort](https://github.com/4lamort) | ponytown's iconic Dracula! |
 | [5orrows](https://github.com/5orrows) | ponytown's iconic ichigo kurosaki! |
+| [aiikowp](https://github.com/aiikowp) | ponytown's iconic Harken yumeshipper! |
 | [angeIist](https://github.com/angeIist) | ponytown's iconic Reddoons! |
 | [Aspenolia](https://github.com/Aspenolia) | ponytown's iconic azure! |
 | [bunchoffriends](https://github.com/bunchoffriends) | ponytown's iconic anthony po! |
