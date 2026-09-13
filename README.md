@@ -23,14 +23,14 @@ PS. if your going to request removal for someone problematic, please provide inf
 | [consultingandinsulting](https://github.com/consultingandinsulting) | ponytown's iconic wayne rigsby! |
 | [danticktum](https://github.com/danticktum) | ponytown's iconic dan ticktum! |
 | [DEBTHVERIFIED](https://github.com/DEBTHVERIFIED) | ponytown's iconic mafioso! |
-| [devilheld](https://github.com/devilheld) ponytown's iconic rarity from mlp! |
+| [devilheld](https://github.com/devilheld) | ponytown's iconic rarity from mlp! |
 | [dontforgetmyangel](https://github.com/dontforgetmyangel) | ponytown's iconic Vincent from deadplate! |
 | [doxdxo](https://github.com/Doxdxo) | ponytown's iconic Doxdxo Saiki Kusuo from TDLOSK! |
 | [dr-vanta](https://github.com/dr-vanta) | ponytown's iconic dr-vanta! |
 | [Dvxter](https://github.com/k-ttyfuel) | ponytown's iconic isabelle from animal crossing! |
 | [eversleeping-town](https://github.com/eversleeping-town) | ponytown's iconic ada wong from resident evil! |
 | [foxtartaglia](https://github.com/foxtartaglia) | ponytown's iconic Childe from genshin impact! |
-| [gamblersi((https://github.com/gamblersi) | ponytown's iconic chance and song: casino Royale! |
+| [gamblersi](https://github.com/gamblersi) | ponytown's iconic chance and song: casino Royale! |
 | [horroryaoi](https://github.com/horroryaoi) | ponytown's iconic Anton! |
 | [Ilove-him](https://github.com/Ilove-him) | Ponytown's iconic Mapicc! |
 | [infection](https://github.com/infextion) | ponytown's iconic Chris Redfield! | 
