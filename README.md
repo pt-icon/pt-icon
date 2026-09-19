@@ -68,5 +68,6 @@ welcome to PT-ICON! here, you can nominate yourself as ponytowns *any form of me
 | [viimsey](https://github.com/viimsey) | ponytown's iconic ashswag! |
 | [Visionarystatic](https://github.com/Visionarystatic) | Ponytown's iconic National geographic channel yumeshipper! |
 | [vrezensky](https://github.com/vrezensky) | ponytown's iconic narancia ghirga! |
+| [Xingqiukisser](https://github.com/Xingqiukisser) | ponytown's iconic xinqui and no.1 iconic xingyun shipper! |
 | [YUBELSREVENGE](https://github.com/YUBELSREVENGE) | ponytown's iconic judai yuki! |
 
