@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com/nominate=First+line+of+text;yourself=Second+line+of+text)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/nominate!=First+line+of+text;Second+line+of+text)](https://git.io/typing-svg)
 
 welcome to PT-ICON! here, you can nominate yourself as ponytowns *any form of media* (just not something problematic.) 
 
